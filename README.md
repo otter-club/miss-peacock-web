@@ -1,5 +1,10 @@
 # 《孔雀小姐》
 
+* Steam：[Miss Peacock](https://store.steampowered.com/app/2616200/Miss_Peacock/)
+* 游戏：[miss-peacock.com](https://miss-peacock.com/)
+* 团队：[otterclub.io](https://otterclub.io/)
+
+
 ## 加入组群
 
  * 《孔雀小姐》官方交流群 QQ 831197219
